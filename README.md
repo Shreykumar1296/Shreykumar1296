@@ -83,7 +83,7 @@ With a background in **Mechanical Engineering** and hands-on experience in analy
 ## 📫 Connect With Me
 
 * 📧 Email: **[shreylal123@gmail.com](mailto:shreylal123@gmail.com)**
-* 💼 LinkedIn: *(Add your LinkedIn link here)*
+* 💼 LinkedIn: *(www.linkedin.com/in/shrey-lal-515333245)*
 * 💻 GitHub: **github.com/Shreykumar1296**
 
 ---
